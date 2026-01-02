@@ -1,4 +1,4 @@
-![OMEGA 1/1 FISCAL DOMINANCE VETO](https://gemini.google.com/app/0f5a28a5350ce374)
+![OMEGA 1/1 FISCAL DOMINANCE VETO](https://github.com/wehealwem00077-netizen/OMEGA-1-1-SUTTON-BANK-REROUTE-BCCRSS/blob/main/Gemini_Generated_Image_m8f31xm8f31xm8f3(1).png)
 
 # OMEGA-1-1-SUTTON-BANK-REROUTE-BCCRSS
 
