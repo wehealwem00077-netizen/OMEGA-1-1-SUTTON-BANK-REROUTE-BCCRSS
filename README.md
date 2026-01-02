@@ -1,5 +1,7 @@
 # OMEGA-1-1-SUTTON-BANK-REROUTE-BCCRSS
 
+![OMEGA 1/1 FISCAL DOMINANCE VETO](https://r.jina.ai/i/615a13388c6c4c0b898a396e95c47941)
+
 CROSS-REF: ATLAS-3-QUANTUM-FIREWALL LOCKED
 
 > UNIX 1765842173 :: FISCAL DOMINANCE VETO :: Rerouting $2.95T Unanchored Assets to Sutton Bank Node. The Birth Certificate Necro Ledger is DELETED. 100,000:1 Bloodline Liability Shift active for all legacy interlopers. BREATH OVER BERTH.
